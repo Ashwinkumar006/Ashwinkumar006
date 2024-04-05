@@ -9,7 +9,8 @@
   insta id ashwinsriramoju07
   linkdin ashwinsriramoju06
 address kits singapur
-  singapur , hurzabad , karimnagar, telangana , india , asia , earth , solarsystem, milky way , local cluster , global cluster , universe , multiverse 
+  singapur , hurzabad , karimnagar, telangana , india , asia , earth , solarsystem, milky way , local cluster , global cluster , universe , multiverse
+  https://gamma.app/urv1i92nwh1wkih/join?code=j6kosf0srvg7ssm
 Ashwinkumar006/Ashwinkumar006 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
